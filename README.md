@@ -1,4 +1,5 @@
 # test-
-bu test uchun repository 
+Bu yerda nimadir yozing
 
-asdkjdksja 
+--Sizni xursand bo'li  kutib olamiz
+
